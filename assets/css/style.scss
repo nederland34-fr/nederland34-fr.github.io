@@ -1,0 +1,85 @@
+---
+# Only the main Sass file needs front matter (the dashes are enough)
+---
+
+@import "minima";
+
+.site-header {
+  border-top: 1px solid $grey-color-light;
+  border-bottom: 1px solid $grey-color-light;
+  min-height: 150px;
+  line-height: $base-line-height * $base-font-size * 2.25;
+
+  // Positioning context for the mobile navigation icon
+  position: relative;
+
+  background-image: url("/assets/images/site/tulip.jpg");
+}
+
+.site-title {
+  font-family: Verdana, Geneva, Tahoma, sans-serif;
+  color: white;
+  font-size: 80px;
+  font-weight: bold;
+  text-shadow: 1px 1px 2px black, 0 0 1em orange, 0 0 0.2em blue;
+  margin-top: 20px;
+}
+.site-title:visited {
+  color: white;
+}
+@media screen and (min-width: $on-medium) {
+  position: static;
+  float: right;
+  border: none;
+  background-color: inherit;
+
+  label[for="nav-trigger"] {
+    display: none;
+  }
+
+  .menu-icon {
+    display: none;
+  }
+
+  input ~ .trigger {
+    display: block;
+  }
+  .site-nav {
+    float: left;
+  }
+  .site-nav .page-link {
+    display: inline;
+    padding: 0;
+    font-family: Verdana, Geneva, Tahoma, sans-serif;
+    color: white;
+    font-size: 16px;
+    text-shadow: 1px 1px 2px black, 0 0 1em orange, 0 0 0.2em blue;
+
+    &:not(:last-child) {
+      margin-right: 20px;
+    }
+    margin-left: auto;
+  }
+}
+
+img {
+  margin-bottom: 1em;
+  border: 1px solid grey;
+}
+
+.flex {
+  display: flex;
+  flex-wrap: wrap;
+  justify-content: space-between;
+  align-items: stretch;
+}
+
+.bestuurslid {
+  width: 30%;
+  min-width: 200px;
+}
+
+.col2 {
+  width: 49%;
+  min-width: 200px;
+}
