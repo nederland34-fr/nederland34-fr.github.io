@@ -16,7 +16,7 @@ menu: Links
 <img src="{{link.image}}" alt="{{link.title}}" style="border: 0px;max-height:80px;">
 </div>
 <div style="width:65%">
-<a href="{{link.url}}">{{link.title}}</a>
+<a href="{{link.link}}">{{link.title}}</a>
 {{link.description}}
 </div>
 {% endfor %}
