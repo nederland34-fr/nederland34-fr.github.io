@@ -1,7 +1,6 @@
 ---
 layout: default
 title: 2016 Bezoek Loupian
-description: 2016 Bezoek Loupian
 image: /assets/images/2016-Bezoek-Loupian/84b135_40c377f22e1546389f7d6be54b951d2a~mv2_d_4000_3000_s_4_2.jpg
 ---
 
