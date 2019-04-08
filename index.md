@@ -9,7 +9,8 @@ layout: flex
 <div class="col2">
 
 ![Place de la Comedie](/assets/images/site/Place-de-la-comedie_format_380x270.jpg)
-De NVM is in 2000 opgericht ter bevordering van de onderlinge contacten tussen Nederlanders in Montpellier en omstreken. De vereniging is aangesloten bij de FANF (de Federatie van Nederlandse Verenigingen in Frankrijk), die inmiddels meer dan 5.000 leden telt.
+
+De NVM is in 2000 opgericht ter bevordering van de onderlinge contacten tussen Nederlanders in Montpellier en omstreken. De vereniging is aangesloten bij de [FANF](http://www.fanf.fr)(de Federatie van Nederlandse Verenigingen in Frankrijk), die inmiddels meer dan 5.000 leden telt.
 
 De doelstellingen van de NVM zijn :
 
