@@ -8,6 +8,7 @@ layout: flex
 
 <div class="bestuurslid">
 ![Johan de Meij](assets/images/site/johan.jpg)
+
 ### Johan de Meij
 
 _Voorzitter sinds 2010_
