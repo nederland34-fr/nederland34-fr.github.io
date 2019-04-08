@@ -5,12 +5,6 @@ layout: default
 ---
 
 # Andre Stam
-
-* bla bla bal
-* bla bla
-* bhhhh
-  * bla
-  * bla
   
 _Andries van der Stam is niet alleen in leeftijd het oudste lid (hij hoopt in augustus 90 te worden), hij is ook een van de eerste leden van de NVM. Samen met Ton Verstoep, Liesbeth Verstoep en zijn vrouw Monique richtte hij in 2000 de NVM op. Tijd om nader kennis te maken met onze ex-vicevoorzitter, die ondanks zijn ziekbed enthousiast zijn verhaal doet._
 
