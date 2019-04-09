@@ -52,3 +52,5 @@ Ik ben lid sinds september 2013 en hoop gezellige Nederlanders te ontmoeten. In 
 _Tot slot, droom je in het Nederlands of in het Frans?_
 
 Ik denk dat ik in het Nederlands droom... Als ik Nederlands spreek, denk ik in het Nederlands. Als ik Frans spreek, denk ik tegenwoordig in het Frans, vroeger niet. Maar als je droomt, let je niet op de taal. Zou hier al onderzoek naar zijn gedaan?
+
+Montpellier maart 2014
