@@ -41,3 +41,5 @@ Ik droom in drie talen, in het Goutmantché, in het Nederlands en in het Frans. 
 _Wat zou je de NVM-ers verder nog willen zeggen?_
 
 Dat het goed is om elkaar geregeld op te zoeken en ervaringen uit te wisselen!
+
+Montpellier februari 2015
