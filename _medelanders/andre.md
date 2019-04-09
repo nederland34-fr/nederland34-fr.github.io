@@ -40,4 +40,6 @@ _Wat zou je de andere NVM-ers tot slot willen zeggen?_
 
 Tijdens een van die televisie- uitzendingen over het ontstaan van het universum heb ik een spreuk gehoord dieme erg aanspreekt en die ongeveer als volgt luidt: “Maak je geen zorgen over de dag van morgen, want die is ernog niet. Pieker niet over het verleden, want dat is geweest. Maar maak er vandààg wat van!”.
 
+Montpellier julie 2014
+
 _**Naschrift:** Helaas heeft André zijn 90ste verjaardag niet meer mogen vieren. Hij is op 27 juni 2014 op zijn ziekbed overleden._
