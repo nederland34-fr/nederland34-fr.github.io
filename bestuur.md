@@ -68,7 +68,7 @@ Geboren in Schoonebeek, getrouwd met Ronald. Commercieel medewerker bij Lab Chau
 
 _Lid sinds 2017_
 
-Geboren in Zaandam, getrouwd met Peter, moeder van een dochter en een zoon. Eigenaar van [www.onderwijs.fr](http://www.onderwijs.fr), de website over Nederlandse les in Frankrijk. Houdt van wandelen, lezen en koken. Geniet van het Franse leven, de cultuur en de _cuisine_"\_! Kan goed organiseren. Wil graag Nederlandse culturele activiteiten organiseren.
+Geboren in Zaandam, getrouwd met Peter, moeder van een dochter en een zoon. Eigenaar van [www.onderwijs.fr](http://www.onderwijs.fr), de website over Nederlandse les in Frankrijk. Houdt van wandelen, lezen en koken. Geniet van het Franse leven, de cultuur en de _cuisine_! Kan goed organiseren. Wil graag Nederlandse culturele activiteiten organiseren.
 
 </div>
 <div class="bestuurslid">
