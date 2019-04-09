@@ -47,3 +47,5 @@ Ik ben lid van de NVM sinds het opstarten van de borrel in 2010. Ik was al lid v
 _Wat zou je de andere NVM-leden nog willen zeggen?_
 
 Zorg dat je integreert! Zorg dat je activiteiten in je directe omgeving onderneemt, dat je onderdeel van het Franse leven gaat uitmaken. Je moet dat heel bewust doen, ook al kost dat in het begin veel moeite. Je kunt je bijvoorbeeld voorstellen aan de burgemeester van je dorp, of voor werkzaamheden een beroep doen op lokale werklui. Je blijft hoe dan ook buitenlander, maar als je alleen in “het Nederlandse” blijft hangen, integreer je nooit.
+
+Montpellier februari 2015
