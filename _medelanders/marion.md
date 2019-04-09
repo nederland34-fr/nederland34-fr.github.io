@@ -48,3 +48,5 @@ Ik droom in veel talen, maar meestal in het Nederlands, en in kleur. Tijdens mij
 _Marion, wil je nog iets zeggen tegen de andere NVM-ers?_
 
 Ja, goede voortzetting, en u bent van harte welkom bij de vernissage op zaterdag 24 mei om 18u in de Temple de Cournonsec, en in de daaropvolgende weekends van 14u tot 18u, zie [http://www.facebook.com/TreeViews](http://www.facebook.com/TreeViews).
+
+Montpellier mei 2014
