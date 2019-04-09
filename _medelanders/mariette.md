@@ -72,3 +72,5 @@ _Wat zou je de andere NVM-ers verder nog willen zeggen?_
 Leef natuurlijk bewust gezond. Neem de verantwoordelijkheid voor je leven in eigen hand!
 
 _Bedankt, Mariette, en welkom bij de NVM!_
+
+Montpellier maart 2014
