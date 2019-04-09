@@ -101,6 +101,6 @@ Geboren in Teijlingen (Sassenheim). Met Marijke ruim 40 jaar in Afrika gewerkt (
 
 _Lid sinds 2018_
 
-Geboren in Veghel, getrouwd met Marcus, hebben samen een _garçon et fille_. Houdt van fietsen, wandelen, lezen, natuur en oude muziek.Brengt veel tijd door in de keuken zowel kokend als etend met een goed glas wijn! Altijd op zoek naar pure en eerlijke ingredienten. Woont sinds 1995 in de regio Beziers, maar vertoeft ook graag in de Alpen en de Vienne. Draagt graag een steentje bij aan de activiteiten van de NVM, ondanks de wat grotere afstand.
+Geboren in Veghel, getrouwd met Marcus, hebben samen een _garçon et fille_. Houdt van fietsen, wandelen, lezen, natuur en oude muziek. Brengt veel tijd door in de keuken zowel kokend als etend met een goed glas wijn! Altijd op zoek naar pure en eerlijke ingredienten. Woont sinds 1995 in de regio Beziers, maar vertoeft ook graag in de Alpen en de Vienne. Draagt graag een steentje bij aan de activiteiten van de NVM, ondanks de wat grotere afstand.
 
 </div>
