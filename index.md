@@ -25,7 +25,7 @@ De NVM is een kleine organisatie van actieve leden die zich belangeloos inzetten
 </div>
 <div class="col2">
 
-<img src="https://www.nederland34.fr/assets/images/2019-Koningsdag/IMG_7468.jpg" width="100%" height="314">
+<img src="https://www.nederland34.fr/assets/images/2019-Koningsdag/IMG_7468.jpg" width="100%" height="227">
 
 Zaterdag 27 april hebben wij een geslaagde Koningsdag gevierd op het Nederlandse vakantiepark [Parc Le Duc 34270 Vacquières](http://www.parcleduc.nl).
 
