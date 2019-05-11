@@ -1,7 +1,7 @@
 ---
 layout: default
 title: 2019 Koningsdag
-image: /assets/images/2016-Borrel/84b135_c6c65cd4b5984e4aa333d66bdccc923a~mv2.jpg
+image: /assets/images/2019-Koningsdag/IMG_7468.jpg
 ---
 
 # 2019 Koningsdag
