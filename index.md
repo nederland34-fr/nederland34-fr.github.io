@@ -26,14 +26,9 @@ De NVM is een kleine organisatie van actieve leden die zich belangeloos inzetten
 <div class="col2">
 
 ![Parc Le Duc](/assets/images/site/parc-le-duc.jpg)
-Koningsdag zaterdag 27 april
-Van 14.00–17.00 uur bent u van harte welkom op het Nederlandse vakantiepark [Parc Le Duc 34270 Vacquières](http://www.parcleduc.nl)
-Sandra en Bob Kremer, de beheerders van het park, geven ons hier alle ruimte om een echte Nederlandse Vrijmarkt te organiseren, waarvoor wij hen heel hartelijk danken.
+Zzaterdag 27 april hebben wij een geslaagde Koningsdag gevierd op het Nederlandse vakantiepark [Parc Le Duc 34270 Vacquières](http://www.parcleduc.nl)
+Sandra en Bob Kremer, de beheerders van het park, gaven ons hier alle ruimte om een echte Nederlandse Vrijmarkt te organiseren, waarvoor wij hen heel hartelijk danken.
 
-Mocht u op zolder of elders dingen hebben die u graag zou willen verkopen, dan is dit de gelegenheid! U dient zelf voor een tafeltje, kleedje of iets dergelijks te zorgen. U bent op de dag zelf vanaf 13.00 uur welkom om een en ander uit te stallen. Verkoop van alcoholische dranken is **niet** toegestaan.
-De verkoop van Nederlandse snacks, zoals heerlijke kroketten, bitterballen of een echte Hollandse Nieuwe zal door de NVM verzorgd worden.
-
-Ook niet-leden van de NVM zijn van harte welkom op deze Vrijmarkt. We stellen het op prijs als u dit bericht doorstuurt aan Nederlandse vrienden en bekenden, aanwezig in deze regio. Ook uw Franse vrienden of vrienden van andere nationaliteiten zijn van harte welkom. Hoe meer zielen, hoe meer vreugd.
-Indien u een verkoopplekje wenst, dan graag een berichtje aan: [marra.nan@gmail.com](mailto:marra.nan@gmail.com)
+[Klik hier voor de foto's.](https://www.nederland34.fr/verslagen/2019-Koningsdag.html)
 
 </div>
