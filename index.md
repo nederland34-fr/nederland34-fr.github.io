@@ -27,10 +27,9 @@ De NVM is een kleine organisatie van actieve leden die zich belangeloos inzetten
 
 <img src="https://www.nederland34.fr/assets/images/2019-Koningsdag/IMG_7468.jpg" width="100%" height="227">
 
-Zaterdag 27 april hebben wij een geslaagde Koningsdag gevierd op het Nederlandse vakantiepark [Parc Le Duc 34270 Vacquières](http://www.parcleduc.nl).
+Woensdag 11 september is er weer de jaarlijkse borrel in de tuin bij Johan en Helene en de Meij. Meld je aan bij [Johan de Meij](mailto:nvm.cnm@orange.fr).
 
-Sandra en Bob Kremer, de beheerders van het park, gaven ons hier alle ruimte om een echte Nederlandse Vrijmarkt te organiseren, waarvoor wij hen heel hartelijk danken.
+Wij hebben vernomen dat Sinterklaas en zijn Pieten zondag 1 december een bezoek zullen brengen aan Montpellier, noteer deze datum alvast in [jullie agenda](https://calendar.google.com/calendar/b/1/r/eventedit/copy/Xzg5MmthYzlpOGwyNDJiYTY2c3E0NGI5azY5Mms2YjlwNzExazJiOWo4NHIzY2MxaDhjc2tjaDlvNjggNmcyODQyZzM0aTd0cWkydmI0bWl2NmZkMDhAZw).
 
-[Klik hier voor de foto's.](https://www.nederland34.fr/verslagen/2019-Koningsdag.html)
 
 </div>
