@@ -20,7 +20,13 @@ De doelstellingen van de NVM zijn :
 - het promoten van Nederland bij de Franse en niet-Franse inwoners van Montpellier en omstreken middels bijeenkomsten, lezingen, tentoonstellingen enz.
 - het onderhouden van contacten met andere Europese verenigingen, onder andere middels gemeenschappelijke bijeenkomsten, als lid van La Maison de l’Europe in Montpellier
 
-De NVM is een kleine organisatie van actieve leden die zich belangeloos inzetten. Daarnaast kent de vereniging supporter/leden die met hun bijdrage van 10 euro per jaar deze dienstverlening mogelijk maken.
+De bestuur van de NVM bestaat uit actieve leden die zich belangeloos inzetten. Daarnaast kent de vereniging donateurs die de vereniging stuenen met een bijdrage van 10 euro per jaar. Deze bijdrage financieert de basiskosten van de vereniging waaronder:
+
+- WA verzekering voor het verzekeren van deelnemers aan activiteiten
+- administratieve kosten (bank, post etc)
+- het steunen van enkele basisactiviteiten van de vereninging die wij organiseren zoals het Sinterklaasfeest en het nieuwjaarsdiner.
+
+In ruil hiervoor hebben de donateurs een gereduceerd tarief voor de meeste van onze activiteiten.
 
 </div>
 <div class="col2">
