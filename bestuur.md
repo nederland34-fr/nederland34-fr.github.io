@@ -13,7 +13,7 @@ layout: flex
 
 _Voorzitter sinds 2010_
 
-Geboren in Arnhem, getrouwd met Hélène, drie kinderen en één kleinkind. Houdt van sporten (bridge), doe-het-zelven en anderen helpen. Neemt soms teveel hooi op zijn vork, maar wil nu eenmaal overal wat van maken. Geniet van het Franse _soie de vivre_ en eet graag Gardianne de taureau. Is graag in zijn achtertuin.
+Geboren in Arnhem, getrouwd met Hélène, drie kinderen en één kleinkind. Houdt van sporten (bridge), doe-het-zelven en andere helpen. Neemt soms teveel hooi op zijn vork, maar wil nu eenmaal overal wat van maken. Geniet van het Franse _soie de vivre_ en eet graag Gardianne de taureau. Is graag in zijn achtertuin.
 Zorgen dat de NVM een vereniging blijft waarin alle graduaties van Nederlandsetaligen in Montpellier en omgeving zich thuisvoelen
 
 </div>
