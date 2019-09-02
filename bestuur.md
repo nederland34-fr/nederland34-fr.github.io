@@ -33,7 +33,7 @@ Geboren in Zeist, twee zoons, werkt met veel plezier als psychiatrisch verpleegk
 
 ### Ronald Oomen
 
-_Penningman sinds 2015_
+_Penningmeester sinds 2015_
 
 Geboren in Ettenleur, getrouwd met Ruurd. Celbioloog bij Vilmorin, producent in groentenzaden. Houdt van wandelen, lekker eten (als er maar foie gras inzit), bioscoop en op het strand liggen. Vindt het mooi dat de Franse trots zijn op hun land, cultuur en gebruiken (niks chauvinistisch). Gaat graag naar Jardin de Peyrou, vooral op zondagmorgen als er brocante is. Is eigenwijs, maar ook optimistisch. Mijn steentje bijdragen aan de organisatie van activiteiten voor jong en oud.
 
