@@ -31,9 +31,9 @@ In ruil hiervoor hebben de donateurs een gereduceerd tarief voor de meeste van o
 </div>
 <div class="col2">
 
-<img src="https://www.nederland34.fr/assets/images/2019-Koningsdag/IMG_7468.jpg" width="100%" height="227">
+<img src="https://albumizr.com/ia/d5b37e351442bb6a63e58f4e9c9d290d.jpg" width="100%" height="227">
 
-Woensdag 11 september is er weer de jaarlijkse borrel in de tuin bij Johan en Helene en de Meij. Meld je aan bij [Johan de Meij](mailto:nvm.cnm@orange.fr).
+Woensdag 11 september was er weer een geslaagde borrel in de tuin bij Johan en Helene en de Meij. Klik [hier](/verslagen/2019-Borrel.html) voor de foto's.
 
 Wij hebben vernomen dat Sinterklaas en zijn Pieten zondag 1 december een bezoek zullen brengen aan Montpellier, noteer deze datum alvast in [jullie agenda](https://calendar.google.com/calendar/b/1/r/eventedit/copy/Xzg5MmthYzlpOGwyNDJiYTY2c3E0NGI5azY5Mms2YjlwNzExazJiOWo4NHIzY2MxaDhjc2tjaDlvNjggNmcyODQyZzM0aTd0cWkydmI0bWl2NmZkMDhAZw).
 
