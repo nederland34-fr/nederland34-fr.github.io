@@ -37,5 +37,11 @@ Woensdag 11 september hebben we weer genoten van een geslaagde borrel in de tuin
 
 Wij hebben vernomen dat Sinterklaas en zijn Pieten zondag 1 december een bezoek zullen brengen aan Montpellier, noteer deze datum alvast in [jullie agenda](https://calendar.google.com/calendar/b/1/r/eventedit/copy/Xzg5MmthYzlpOGwyNDJiYTY2c3E0NGI5azY5Mms2YjlwNzExazJiOWo4NHIzY2MxaDhjc2tjaDlvNjggNmcyODQyZzM0aTd0cWkydmI0bWl2NmZkMDhAZw).
 
+Noteer alvast de volgende activiteiten in jullie agenda's:
+- Nieuwjaarsdiner op 17 januari
+- Stamppotavond op 28 februari
+- Konginsdag op 26 april
+
+Meer informatie volgt later.
 
 </div>
