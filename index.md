@@ -40,7 +40,7 @@ Wij hebben vernomen dat Sinterklaas en zijn Pieten zondag 1 december een bezoek 
 Noteer alvast de volgende activiteiten in jullie agenda's:
 - Nieuwjaarsdiner op 17 januari
 - Stamppotavond op 28 februari
-- Konginsdag op 26 april
+- Kongingsdag op 26 april
 
 Meer informatie volgt later.
 
