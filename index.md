@@ -33,7 +33,7 @@ In ruil hiervoor hebben de donateurs een gereduceerd tarief voor de meeste van o
 
 <img src="/assets/images/Sinterklaas2019.jpg" width="100%" height="227">
 
-Zondag 1 december hebben we weer genoten van een zeer geslaag Sinterklaasfeest! Klik [hier](/verslagen/2019-Borrel.html) voor de foto's.
+Zondag 1 december hebben we weer genoten van een zeer geslaag Sinterklaasfeest! Klik [hier](/verslagen/2019-Sinterklaasfeest.html) voor de foto's.
 
 [De NVM agenda](https://calendar.google.com/calendar/b/1/r/eventedit/copy/Xzg5MmthYzlpOGwyNDJiYTY2c3E0NGI5azY5Mms2YjlwNzExazJiOWo4NHIzY2MxaDhjc2tjaDlvNjggNmcyODQyZzM0aTd0cWkydmI0bWl2NmZkMDhAZw).
 
