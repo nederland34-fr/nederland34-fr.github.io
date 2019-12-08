@@ -1,7 +1,7 @@
 ---
 layout: default
 title: 2019 Sinterklaasfeest
-image: /assets/images/Sinterklaas.jpg
+image: /assets/images//Sinterklaas2019.jpg
 ---
 
 # 2019 Sinterklaasfeest
