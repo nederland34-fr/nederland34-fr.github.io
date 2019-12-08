@@ -1,7 +1,7 @@
 ---
 layout: default
-title: 2019 Nieuwjaarsmaaltijd
-image: /assets/images/Sinterklaasfeest-2019.jpg
+title: 2019 Sinterklaasfeest
+image: /assets/images/Sinterklaas.jpg
 ---
 
 # 2019 Sinterklaasfeest
