@@ -31,11 +31,11 @@ In ruil hiervoor hebben de donateurs een gereduceerd tarief voor de meeste van o
 </div>
 <div class="col2">
 
-<img src="https://albumizr.com/ia/d5b37e351442bb6a63e58f4e9c9d290d.jpg" width="100%" height="227">
+<img src="/assets/images/Sinterklaas2019.jpg" width="100%" height="227">
 
-Woensdag 11 september hebben we weer genoten van een geslaagde borrel in de tuin bij Johan en Helene en de Meij. Onze hartelijke dank voor de ontvangst en de perfecte verzorging! Klik [hier](/verslagen/2019-Borrel.html) voor de foto's.
+ZOndag 1 december hebben we weer genoten van een zeer geslaag Sinterklaasfeest! Klik [hier](/verslagen/2019-Borrel.html) voor de foto's.
 
-Wij hebben vernomen dat Sinterklaas en zijn Pieten zondag 1 december een bezoek zullen brengen aan Montpellier, noteer deze datum alvast in [jullie agenda](https://calendar.google.com/calendar/b/1/r/eventedit/copy/Xzg5MmthYzlpOGwyNDJiYTY2c3E0NGI5azY5Mms2YjlwNzExazJiOWo4NHIzY2MxaDhjc2tjaDlvNjggNmcyODQyZzM0aTd0cWkydmI0bWl2NmZkMDhAZw).
+[De NVM agenda](https://calendar.google.com/calendar/b/1/r/eventedit/copy/Xzg5MmthYzlpOGwyNDJiYTY2c3E0NGI5azY5Mms2YjlwNzExazJiOWo4NHIzY2MxaDhjc2tjaDlvNjggNmcyODQyZzM0aTd0cWkydmI0bWl2NmZkMDhAZw).
 
 Noteer alvast de volgende activiteiten in jullie agenda's:
 - Nieuwjaarsdiner op 17 januari in Les Six Sens in Montpelllier
