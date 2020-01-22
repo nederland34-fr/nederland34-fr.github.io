@@ -38,7 +38,6 @@ Zondag 1 december hebben we weer genoten van een zeer geslaag Sinterklaasfeest! 
 [De NVM agenda](https://calendar.google.com/calendar/b/1/r/eventedit/copy/Xzg5MmthYzlpOGwyNDJiYTY2c3E0NGI5azY5Mms2YjlwNzExazJiOWo4NHIzY2MxaDhjc2tjaDlvNjggNmcyODQyZzM0aTd0cWkydmI0bWl2NmZkMDhAZw).
 
 Noteer alvast de volgende activiteiten in jullie agenda's:
-- Nieuwjaarsdiner op 17 januari in Les Six Sens in Montpelllier
 - Stamppotavond op 28 februari
 - Kongingsdag op 26 april
 
