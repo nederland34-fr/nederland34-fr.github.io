@@ -31,14 +31,13 @@ In ruil hiervoor hebben de donateurs een gereduceerd tarief voor de meeste van o
 </div>
 <div class="col2">
 
-<img src="/assets/images/Sinterklaas2019.jpg" width="100%" height="227">
+<img src="/assets/images/stamppot2020.jpg" width="100%" height="227">
 
-Zondag 1 december hebben we weer genoten van een zeer geslaag Sinterklaasfeest! Klik [hier](/verslagen/2019-Sinterklaasfeest.html) voor de foto's.
+Vrijdag 28 februari hebben wij genoten van drie heerlijke stamppotten! Nanneke, Marian en Johan hartelijk dank voor jullie cullinaire inzet! Klik [hier](/verslagen/2020-Stamppotavond.html) voor de foto's.
 
 [De NVM agenda](https://calendar.google.com/calendar/b/1/r/eventedit/copy/Xzg5MmthYzlpOGwyNDJiYTY2c3E0NGI5azY5Mms2YjlwNzExazJiOWo4NHIzY2MxaDhjc2tjaDlvNjggNmcyODQyZzM0aTd0cWkydmI0bWl2NmZkMDhAZw).
 
 Noteer alvast de volgende activiteiten in jullie agenda's:
-- Stamppotavond op 28 februari
 - Kongingsdag op 26 april
 
 Meer informatie volgt later.
