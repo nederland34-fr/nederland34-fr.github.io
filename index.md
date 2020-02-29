@@ -31,7 +31,7 @@ In ruil hiervoor hebben de donateurs een gereduceerd tarief voor de meeste van o
 </div>
 <div class="col2">
 
-<img src="/assets/images/stamppot2020.jpg" width="100%" height="227">
+<img src="/assets/images/stamppotten.jpg" width="100%" height="227">
 
 Vrijdag 28 februari hebben wij genoten van drie heerlijke stamppotten! Nanneke, Marian en Johan hartelijk dank voor jullie cullinaire inzet! Klik [hier](/verslagen/2020-Stamppotavond.html) voor de foto's.
 
