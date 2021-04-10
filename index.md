@@ -43,7 +43,7 @@ De volgende artikelen zijn verschenen:
 * Schenken van een huis in Frankrijk
 * SCI( Société Civile Immobilière)
 * Onderneming vestigen in Frankrijk
-* Belangrijke beslissingen (donorregistratie en “levenstestament) 
+* Belangrijke beslissingen (donorregistratie en “levenstestament") 
 * Rijbewijs verlengen
 * Registratie van een auto
 * Verlies van de Nederlandse nationaliteit
