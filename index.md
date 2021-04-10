@@ -33,13 +33,40 @@ In ruil hiervoor hebben de donateurs een gereduceerd tarief voor de meeste van o
 
 <img src="/assets/images/stamppotten.jpg" width="100%" height="227">
 
-Vrijdag 28 februari hebben wij genoten van drie heerlijke stamppotten! Nanneke, Marian en Johan hartelijk dank voor jullie cullinaire inzet! Klik [hier](/verslagen/2020-Stamppotavond.html) voor de foto's.
+De Algemene Ledenvergadering is gehouden op zaterdag 20 maart jl. per telefoon conferentie, vanwege het coronavirus.
+Het is nog steeds de bedoeling om een bijeenkomst te houden in oktober op de ambassade. De voorzitters/vertegenwoordigers van Stichting GOED ( Grenzeloos Onder Eén Dak), de VBNGB ( Vereniging Belangenbehartiging Nederlands Gepensioneerden in het Buitenland) en de SNBN(Stichting Nederlanders Buiten Nederland) zullen ook uitgenodigd worden.
+Hieronder volgt een overzicht van de werkgroepen:
 
-[De NVM agenda](https://calendar.google.com/calendar/b/1/r/eventedit/copy/Xzg5MmthYzlpOGwyNDJiYTY2c3E0NGI5azY5Mms2YjlwNzExazJiOWo4NHIzY2MxaDhjc2tjaDlvNjggNmcyODQyZzM0aTd0cWkydmI0bWl2NmZkMDhAZw).
+## Juridisch/fiscaal
 
-Noteer alvast de volgende activiteiten in jullie agenda's:
-- Kongingsdag op 26 april
+De volgende artikelen zijn verschenen:
+* Schenken van een huis in Frankrijk
+* SCI( Société Civile Immobilière)
+* Onderneming vestigen in Frankrijk
+* Belangrijke beslissingen (donorregistratie en “levenstestament)  Rijbewijs verlengen
+* Registratie van een auto
+* Verlies van de Nederlandse nationaliteit
 
-Meer informatie volgt later.
+In samenwerking met Monique Rombouts heeft Anna Gerlach een artikel geschreven over erfrecht en erfbelasting.
+
+## Zorg
+
+De volgende artikelen zijn verschenen:
+
+* Zorg in Frankrijk, Zorg in Nederland
+* De vergoedingen van zorgkosten in Frankrijk
+* Verdrags-gerechtigden niet verzekerd buiten Europa
+ 
+## Onderwijs
+
+Het is echt niet meer mogelijk om Nederlands als vreemde taal te kiezen voor het baccalaureaat, als het niet onderwezen wordt op de school van de leerling. In Lille kunnen de leerlingen nog steeds Nederlands als vreemde taal kiezen. Er staat een artikel op de website over: Certificaat Nederlands als vreemde taal.
+
+Doelstelling voor het komend jaar:
+
+* De website actueel houden met informatieve artikelen betreffende FANF werkgroepen: juridisch/fiscaal, zorg en onderwijs.
+* Doorgaan met actie(s) om het “niet ziekte verzekerd zijn buiten Europa van Verdrags-gerechtigen” op te doen heffen.
+* Verder uitbouwen van de samenwerking met andere niet commerciële belangen behartigers.
+
+Een werkgroepje Communicatie opzetten om met name beslissing rond sociaal media te herzien en het nagaan wat de FANF op de coördinaties heeft bereikt.
 
 </div>
