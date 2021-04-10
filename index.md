@@ -37,19 +37,20 @@ De Algemene Ledenvergadering is gehouden op zaterdag 20 maart jl. per telefoon c
 Het is nog steeds de bedoeling om een bijeenkomst te houden in oktober op de ambassade. De voorzitters/vertegenwoordigers van Stichting GOED ( Grenzeloos Onder Eén Dak), de VBNGB ( Vereniging Belangenbehartiging Nederlands Gepensioneerden in het Buitenland) en de SNBN(Stichting Nederlanders Buiten Nederland) zullen ook uitgenodigd worden.
 Hieronder volgt een overzicht van de werkgroepen:
 
-## Juridisch/fiscaal
+### Juridisch/fiscaal
 
 De volgende artikelen zijn verschenen:
 * Schenken van een huis in Frankrijk
 * SCI( Société Civile Immobilière)
 * Onderneming vestigen in Frankrijk
-* Belangrijke beslissingen (donorregistratie en “levenstestament)  Rijbewijs verlengen
+* Belangrijke beslissingen (donorregistratie en “levenstestament) 
+* Rijbewijs verlengen
 * Registratie van een auto
 * Verlies van de Nederlandse nationaliteit
 
 In samenwerking met Monique Rombouts heeft Anna Gerlach een artikel geschreven over erfrecht en erfbelasting.
 
-## Zorg
+### Zorg
 
 De volgende artikelen zijn verschenen:
 
@@ -57,7 +58,7 @@ De volgende artikelen zijn verschenen:
 * De vergoedingen van zorgkosten in Frankrijk
 * Verdrags-gerechtigden niet verzekerd buiten Europa
  
-## Onderwijs
+### Onderwijs
 
 Het is echt niet meer mogelijk om Nederlands als vreemde taal te kiezen voor het baccalaureaat, als het niet onderwezen wordt op de school van de leerling. In Lille kunnen de leerlingen nog steeds Nederlands als vreemde taal kiezen. Er staat een artikel op de website over: Certificaat Nederlands als vreemde taal.
 
