@@ -31,7 +31,7 @@ In ruil hiervoor hebben de donateurs een gereduceerd tarief voor de meeste van o
 </div>
 <div class="col2">
 
-<img src="/assets/images/stamppotten.jpg" width="100%" height="227">
+<img src="/assets/images/logo_fanf.png" width="100%" height="227">
 
 De Algemene Ledenvergadering is gehouden op zaterdag 20 maart jl. per telefoon conferentie, vanwege het coronavirus.
 Het is nog steeds de bedoeling om een bijeenkomst te houden in oktober op de ambassade. De voorzitters/vertegenwoordigers van Stichting GOED ( Grenzeloos Onder Eén Dak), de VBNGB ( Vereniging Belangenbehartiging Nederlands Gepensioneerden in het Buitenland) en de SNBN(Stichting Nederlanders Buiten Nederland) zullen ook uitgenodigd worden.
