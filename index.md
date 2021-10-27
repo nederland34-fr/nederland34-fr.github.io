@@ -34,4 +34,11 @@ In ruil hiervoor hebben de donateurs een gereduceerd tarief voor de meeste van o
 <img src="/assets/images/logo_fanf.png" width="100%" height="227">
 
 De activiteiten bij de NVM gaan weer van start. De maandelijkse borrel is zoals altijd op de eerste woensdag van de maand bij Le Montpe'l in Montpellier. De eerstvolgende borrel is op woensdag 3 november. Meld je aan via mieke.kriens@aqute.biz.
+
+Noteer alvast de volgende activiteiten:
+  
+* Nieuwjaarsdiner vrijdag 21 januari 2022
+* Stamppotavond vrijdag 25 februari 2022
+  
+Meer informatie volgt snel.
 </div>
