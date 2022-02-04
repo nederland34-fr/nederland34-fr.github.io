@@ -34,4 +34,5 @@ In ruil hiervoor hebben de donateurs een gereduceerd tarief voor de meeste van o
 <img src="/assets/images/stamppotten.jpg" width="100%" height="227">
 
 De maandelijkse borrel gaat weer van start en de eerste borrel staat gepland op woensdag 9 februari. Wil je komen, stuur dan even even een mailtje naar [Mieke](mailto:mieke.kriens@aqute.biz). We hopen ook snel weer met andere activiteiten te kunnen starten.
+  
 </div>
