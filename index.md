@@ -37,6 +37,6 @@ De volgende borrel staat gepland op woensdag 1 juni. We zien elkaar zoals altijd
 We hopen ook snel weer met andere activiteiten te kunnen starten.
   
   
-  Wist u dat u, ook al woont u in Frankrijk, uw testament op kunt stellen in het Nederlands? Lees er meer over op (https://www.service-public.fr/particuliers/actualites/A15716?xtor=EPR-141) meer over.
+  Wist u dat u, ook al woont u in Frankrijk, uw testament op kunt stellen in het Nederlands? Lees er meer over op (https://www.service-public.fr/particuliers/actualites/A15716?xtor=EPR-141).
   
 </div>
