@@ -36,4 +36,7 @@ In ruil hiervoor hebben de donateurs een gereduceerd tarief voor de meeste van o
 De volgende borrel staat gepland op woensdag 1 juni. We zien elkaar zoals altijd rond 20.00 uur bij de Montpe'l in Montpellier. Wil je komen, stuur dan even even een mailtje naar [Mieke](mailto:mieke.kriens@aqute.biz). 
 We hopen ook snel weer met andere activiteiten te kunnen starten.
   
+  
+  Wist u dat u, ook al woont u in Frankrijk, uw testament op kunt stellen in het Nederlands? Lees er hier meer over.
+  
 </div>
