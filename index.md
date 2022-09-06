@@ -33,7 +33,7 @@ In ruil hiervoor hebben de donateurs een gereduceerd tarief voor de meeste van o
 
 <img src="/assets/images/stamppotten.jpg" width="100%" height="227">
 
-De volgende borrel staat gepland op woensdag 1 juni. We zien elkaar zoals altijd rond 20.00 uur bij de Montpe'l in Montpellier. Wil je komen, stuur dan even even een mailtje naar [Mieke](mailto:mieke.kriens@aqute.biz). 
+De maandelijkse borrel vindt altijd plaats bij de Montpe'l in Montpellier. Kijk in de agenda wanneer de volgende borrel is. Wil je komen, stuur dan even even een mailtje naar [Mieke](mailto:mieke.kriens@aqute.biz). 
 We hopen ook snel weer met andere activiteiten te kunnen starten.
   
   
