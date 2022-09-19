@@ -33,7 +33,7 @@ In ruil hiervoor hebben de donateurs een gereduceerd tarief voor de meeste van o
 
 <img src="/assets/images/stamppotten.jpg" width="100%" height="227">
 
-De maandelijkse borrel vindt altijd plaats bij de Montpe'l in Montpellier. Kijk in de agenda wanneer de volgende borrel is. Wil je komen, stuur dan even even een mailtje naar [Mieke](mailto:mieke.kriens@aqute.biz). 
+De maandelijkse borrel vindt altijd plaats bij de Montpe'l in Montpellier. Woensdag 5 oktober staat de volgende borrel gepland. We zien elkaar rond 20.00 uur bij le Montpe'l. Wil je komen, stuur dan even even een mailtje naar [Mieke](mailto:mieke.kriens@aqute.biz). 
 We hopen ook snel weer met andere activiteiten te kunnen starten.
   
   
