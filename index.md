@@ -33,10 +33,10 @@ In ruil hiervoor hebben de donateurs een gereduceerd tarief voor de meeste van o
 
 <img src="/assets/images/stamppotten.jpg" width="100%" height="227">
 
-De maandelijkse borrel vindt altijd plaats bij de Montpe'l in Montpellier. Woensdag 2 november staat de volgende borrel gepland. We zien elkaar rond 20.00 uur bij le Montpe'l. Wil je komen, stuur dan even even een mailtje naar [Mieke](mailto:mieke.kriens@aqute.biz). 
-We hopen ook snel weer met andere activiteiten te kunnen starten.
+De maandelijkse borrel vindt altijd plaats bij de Montpe'l in Montpellier. Woensdag 4 januari staat de volgende borrel gepland. We zien elkaar rond 20.00 uur bij le Montpe'l. Wil je komen, stuur dan even even een mailtje naar [Mieke](mailto:mieke.kriens@aqute.biz). 
   
+Vrijdag 20 jaunari organiseren we het Nieuwjaarsdiner in French Flaire in Baillargues. Wilt u komen, stuur dan een mail naar [Nanneke Mara](mailto:marra.nan@gmail.com). Zij zal u een inchrijfformulier toesturen. De kosten voor het diner bedragen 35 euro, de NVM neemt 10 euro voor haar rekening. Wacht niet te lang met u aanmelden, want u moet zich voor 29 december opgeven.
   
-  Wist u dat u, ook al woont u in Frankrijk, uw testament op kunt stellen in het Nederlands? Lees er [hier](https://www.service-public.fr/particuliers/actualites/A15716?xtor=EPR-141) meer over.
+Wist u dat u, ook al woont u in Frankrijk, uw testament op kunt stellen in het Nederlands? Lees er [hier](https://www.service-public.fr/particuliers/actualites/A15716?xtor=EPR-141) meer over.
   
 </div>
