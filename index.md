@@ -33,9 +33,10 @@ In ruil hiervoor hebben de donateurs een gereduceerd tarief voor de meeste van o
 
 <img src="/assets/images/stamppotten.jpg" width="100%" height="227">
 
-De maandelijkse borrel vindt altijd plaats bij de Montpe'l in Montpellier. Woensdag 4 januari staat de volgende borrel gepland. We zien elkaar rond 20.00 uur bij le Montpe'l. Wil je komen, stuur dan even even een mailtje naar [Mieke](mailto:mieke.kriens@aqute.biz). 
+De maandelijkse borrel vindt altijd plaats bij de Montpe'l in Montpellier. Woensdag 8 maart staat de volgende borrel gepland. We zien elkaar rond 20.00 uur bij le Montpe'l. Wilt u komen, stuur dan even even een mailtje naar [Mieke](mailto:mieke.kriens@aqute.biz). 
   
-Vrijdag 20 januari organiseren we het Nieuwjaarsdiner in French Flaire in Baillargues. Wilt u komen, stuur dan een mail naar [Nanneke Mara](mailto:marra.nan@gmail.com). Zij zal u een inchrijfformulier toesturen. De kosten voor het diner bedragen 35 euro, de NVM neemt 10 euro voor haar rekening. Wacht niet te lang met u aanmelden, want u moet zich voor 29 december opgeven.
+
+En heeft u trek in zuurkool, boerenkool met worst of hutspot met een bal gehakt? Meldt u dan aan voor de stamppotavond die de NVM organiseert op woensdag 15 maart. De kosten voor de avond bedragen €7,50 per persoon, ter plekke te voldoen.  Wilt u komen, stuur dan een mail naar [Nanneke Mara](mailto:marra.nan@gmail.com). Het aantal deelnemers is beperkt, dus wees er snel bij!
   
 Let op, tijdens activiteiten van de NVM kunnen foto's gemaakt worden die geplaatst kunnen worden op de website en de FaceBook-pagina van de NVM.
   
