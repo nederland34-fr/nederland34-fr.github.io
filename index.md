@@ -33,11 +33,8 @@ In ruil hiervoor hebben de donateurs een gereduceerd tarief voor de meeste van o
 
 <img src="/assets/images/stamppotten.jpg" width="100%" height="227">
 
-De maandelijkse borrel vindt altijd plaats bij de Montpe'l in Montpellier. Woensdag 8 maart staat de volgende borrel gepland. We zien elkaar rond 20.00 uur bij le Montpe'l. Wilt u komen, stuur dan even even een mailtje naar [Mieke](mailto:mieke.kriens@aqute.biz). 
-  
-
-En heeft u trek in zuurkool, boerenkool met worst of hutspot met een bal gehakt? Meldt u dan aan voor de stamppotavond die de NVM organiseert op woensdag 15 maart. De kosten voor de avond bedragen €7,50 per persoon, ter plekke te voldoen.  Wilt u komen, stuur dan een mail naar [Nanneke Mara](mailto:marra.nan@gmail.com). Het aantal deelnemers is beperkt, dus wees er snel bij!
-  
+De maandelijkse borrel vindt altijd plaats bij de Montpe'l in Montpellier. Donderdag 27 april staat de borrel in het teken van Koningsdag! Ook dan zien we elkaar rond 20.00 uur bij le Montpe'l, maar natuurlijk wel in het oranje! Wilt u komen, stuur dan even even een mailtje naar [Ruurd](mailto:ruurd.leveling@gmail.com). 
+ 
 Let op, tijdens activiteiten van de NVM kunnen foto's gemaakt worden die geplaatst kunnen worden op de website en de FaceBook-pagina van de NVM.
   
 Wist u dat u, ook al woont u in Frankrijk, uw testament op kunt stellen in het Nederlands? Lees er [hier](https://www.service-public.fr/particuliers/actualites/A15716?xtor=EPR-141) meer over.
