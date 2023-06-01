@@ -56,7 +56,7 @@ Geboren in Ede. Flink over de wereld gezworven (Groningen, London, Kiribati, Chi
 
 ### Jan Pit
 
-_Lid sinds 2013_
+_Penningmeester sinds 2023_
 
 Geboren in Teijlingen (Sassenheim). Met Marijke ruim 40 jaar in Afrika gewerkt (Algerije, Madagascar, Kenia, Centraal-Afrika, Botswana). Natuurkunde, statistiek, schakeltechniek, en informatica. Twee zonen en vier kleinkinderen. Sinds 2013 in Frankrijk (Lattes). Wandelt graag in de ruime omgeving. Computert veel, geïnteresseerd in genealogie. Geniet van het Franse leven in al zijn facetten.
 
