@@ -29,16 +29,6 @@ Geboren in Zeist, twee zoons, werkt met veel plezier als psychiatrisch verpleegk
 
 </div>
 <div class="bestuurslid">
-![Ronald Oomen](assets/images/site/ronald.jpg)
-
-### Ronald Oomen
-
-_Penningmeester sinds 2015_
-
-Geboren in Ettenleur, getrouwd met Ruurd. Celbioloog bij Vilmorin, producent in groentenzaden. Houdt van wandelen, lekker eten (als er maar foie gras inzit), bioscoop en op het strand liggen. Vindt het mooi dat de Franse trots zijn op hun land, cultuur en gebruiken (niks chauvinistisch). Gaat graag naar Jardin de Peyrou, vooral op zondagmorgen als er brocante is. Is eigenwijs, maar ook optimistisch. Mijn steentje bijdragen aan de organisatie van activiteiten voor jong en oud.
-
-</div>
-<div class="bestuurslid">
 
 ![Ton Verstoep](assets/images/site/ton.jpg)
 
@@ -47,28 +37,6 @@ Geboren in Ettenleur, getrouwd met Ruurd. Celbioloog bij Vilmorin, producent in 
 _Lid sinds 2010_
 
 Geboren in Rotterdam, weduwnaar, één dochter, één zoon en drie kleinkinderen. Oprichter en ex-voorzitter van de NVM. Heeft het druk met van alles o.a. golven en wandelen. Gaat graag naar de dierentuin en Odysseum. Waardeert de goede manier van de Fransen. Eet graag gevulde kwartel met creme en champignons. Zwakke punt: "zijn leeftijd", sterke punt: "sociaal gevoel". Hoopt nog 2 jaar door te gaan bij de NVM.
-
-</div>
-<div class="bestuurslid">
-
-![Ruurd Leveling](assets/images/site/ruurd.jpg)
-
-### Ruurd Leveling
-
-_Lid sinds 2015_
-
-Geboren in Schoonebeek, getrouwd met Ronald. Commercieel medewerker bij Lab Chauvin/Bausch+Lomb. Hobbies muziek, lezen, reizen. Waardeert de eigenzinnige Fransen en een heerlijke magret de canard. Is graag thuis met een glaasje wijn... Positief ingesteld, gevoel voor humor. Organisatie en ondersteuning van diverse activiteiten.
-
-</div>
-<div class="bestuurslid">
-
-![Mieke Kriens](assets/images/site/mieke.jpg)
-
-### Mieke Kriens
-
-_Lid sinds 2017_
-
-Geboren in Zaandam, getrouwd met Peter, moeder van een dochter en een zoon. Werkt als vertaalster van ondertitels Frans - Nederlands voor TV5 Monde. Houdt van wandelen, lezen en koken. Geniet van het Franse leven, de cultuur en de _cuisine_! Kan goed organiseren. Wil graag Nederlandse culturele activiteiten organiseren.
 
 </div>
 <div class="bestuurslid">
