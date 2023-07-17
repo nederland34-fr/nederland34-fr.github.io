@@ -41,17 +41,6 @@ Geboren in Rotterdam, weduwnaar, één dochter, één zoon en drie kleinkinderen
 </div>
 <div class="bestuurslid">
 
-![Elsien van Galen](assets/images/site/elsien.jpg)
-
-### Elsien van Galen
-
-_Lid sinds 2017_
-
-Geboren in Ede. Flink over de wereld gezworven (Groningen, London, Kiribati, China, Nepal, India, en nu Montpellier) met een Schotse partner. Heeft veel banen gehad en studies gevolgd: studie Frans, docente/examinatrice Engels, master kunst, en master geschiedenis. Daarnaast moeder en grootmoeder. Inmiddels _halftime_ gepensioneerd om te kunnen zwemmen, yoga, wandelen, fietsen, pianospelen, Italiaans leren en toneel spelen.
-
-</div>
-<div class="bestuurslid">
-
 ![Jan Pit](assets/images/site/jan.jpg)
 
 ### Jan Pit
@@ -59,16 +48,5 @@ Geboren in Ede. Flink over de wereld gezworven (Groningen, London, Kiribati, Chi
 _Penningmeester sinds 2023_
 
 Geboren in Teijlingen (Sassenheim). Met Marijke ruim 40 jaar in Afrika gewerkt (Algerije, Madagascar, Kenia, Centraal-Afrika, Botswana). Natuurkunde, statistiek, schakeltechniek, en informatica. Twee zonen en vier kleinkinderen. Sinds 2013 in Frankrijk (Lattes). Wandelt graag in de ruime omgeving. Computert veel, geïnteresseerd in genealogie. Geniet van het Franse leven in al zijn facetten.
-
-</div>
-<div class="bestuurslid">
-
-![Rosalie Schlatmann](assets/images/site/rosalie.jpg)
-
-## Rosalie Schlatmann
-
-_Lid sinds 2018_
-
-Geboren in Veghel, getrouwd met Marcus, hebben samen een _garçon et fille_. Houdt van fietsen, wandelen, lezen, natuur en oude muziek. Brengt veel tijd door in de keuken zowel kokend als etend met een goed glas wijn! Altijd op zoek naar pure en eerlijke ingredienten. Woont sinds 1995 in de regio Beziers, maar vertoeft ook graag in de Alpen en de Vienne. Draagt graag een steentje bij aan de activiteiten van de NVM, ondanks de wat grotere afstand.
 
 </div>
