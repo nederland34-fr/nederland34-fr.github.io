@@ -33,7 +33,7 @@ In ruil hiervoor hebben de donateurs een gereduceerd tarief voor de meeste van o
 
 <img src="/assets/images/stamppotten.jpg" width="100%" height="227">
 
-De maandelijkse borrel vindt altijd plaats bij de Montpe'l in Montpellier. Donderdag 27 april staat de borrel in het teken van Koningsdag! Ook dan zien we elkaar rond 20.00 uur bij le Montpe'l, maar natuurlijk wel in het oranje! Wilt u komen, stuur dan even even een mailtje naar [Ruurd](mailto:ruurd.leveling@gmail.com). 
+Iedere eerste woensdag van de maand wordt er een Nederlandse borrel georganiseerd in le Montpe'l in Montpellier. 
  
 Let op, tijdens activiteiten van de NVM kunnen foto's gemaakt worden die geplaatst kunnen worden op de website en de FaceBook-pagina van de NVM.
   
