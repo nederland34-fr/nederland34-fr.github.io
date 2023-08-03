@@ -30,17 +30,6 @@ Geboren in Zeist, twee zoons, werkt met veel plezier als psychiatrisch verpleegk
 </div>
 <div class="bestuurslid">
 
-![Ton Verstoep](assets/images/site/ton.jpg)
-
-### Ton Verstoep
-
-_Lid sinds 2010_
-
-Geboren in Rotterdam, weduwnaar, één dochter, één zoon en drie kleinkinderen. Oprichter en ex-voorzitter van de NVM. Heeft het druk met van alles o.a. golven en wandelen. Gaat graag naar de dierentuin en Odysseum. Waardeert de goede manier van de Fransen. Eet graag gevulde kwartel met creme en champignons. Zwakke punt: "zijn leeftijd", sterke punt: "sociaal gevoel". Hoopt nog 2 jaar door te gaan bij de NVM.
-
-</div>
-<div class="bestuurslid">
-
 ![Jan Pit](assets/images/site/jan.jpg)
 
 ### Jan Pit
